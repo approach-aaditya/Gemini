@@ -1,0 +1,1 @@
+Detailed technical drawing of a [object], in white paper with dimensions and annotations in pencil. [The Subject] must be depicted in pencil with texture details and material used, showing [key parts] all in clear detail. Intricate element, detailed blueprint style with notes on its features and functionality.
